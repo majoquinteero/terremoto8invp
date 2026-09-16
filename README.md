@@ -1,1 +1,0 @@
-# terremoto8invp
